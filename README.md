@@ -1,3 +1,0 @@
-kbeznak parmatonic
-
-
